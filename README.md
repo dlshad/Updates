@@ -1,4 +1,0 @@
-Updates
-=======
-
-Updates for Sanctuary
